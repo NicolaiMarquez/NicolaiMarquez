@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NicolaiMarquez
-- 👀 I’m interested coding, trading, storytelling... well, many things.
+- 👀 I’m interested coding, trading, music and other things!
 - 🌱 I’m currently learning programming, and initiating in this  exciting world!
 - 📫 How to reach me: nicolaimarquez194@gmail.com
 
